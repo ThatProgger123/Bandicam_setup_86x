@@ -1,0 +1,1 @@
+# Bandicam_setup_86x
